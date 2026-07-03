@@ -3,4 +3,4 @@ Artista emergente, El SIETE EME es un cantante y compositor Méxicano originario
 
 DISPONIBLE EN TODAS LAS PLATAFORMAS 
 
-colaboración con GAELINA 
+colaboración con GAELINA (valentina)
